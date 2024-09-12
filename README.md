@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @NBenevides
+- 👀 I’m interested in Program
+- 🌱 I’m currently learning Program
+- 💞️ I’m looking to collaborate on Database
+- 📫 How to reach me (13)98167-6527
+- 😄 Pronouns: He/Her
+- ⚡ Fun fact: I'm going to the army
